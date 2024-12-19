@@ -1,6 +1,6 @@
 Hi 👋, I'm dita
 
-- 📫 How to reach me **ditaworkdev@gmail.com** or **buatcreative.web.id**
+- 📫 Conatact to collaborate **ditaworkdev@gmail.com** or **buatcreative.web.id**
 
 - ⚡ Fun fact **Sometimes funny**
 
